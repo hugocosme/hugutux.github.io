@@ -1,0 +1,1 @@
+Nada sério por aqui, somente alguns testes e "publicações" aleatórias, talvez use isso como um repositorio de informações! ;)
